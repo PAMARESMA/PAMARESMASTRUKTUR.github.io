@@ -1,1 +1,1 @@
-# PAMARESMASTRUKTUR.github.io
+# pamaresmastruktur.github.io
